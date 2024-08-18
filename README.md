@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Thorer0
-- 👀 I’m interested in drones, programming and basketball
+- 👀 I’m interested in drones, programming, basketball and CRUZEIRO ESPORTE CLUBE (O MAIOR DE MINAS GERAIS).
 - 🌱 I’m currently learning eletronics at CEFET-MG
 - 💞️ I’m looking to collaborate on Role-Maker
 - 📫 How to reach me @arth_rocha
